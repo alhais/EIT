@@ -1,0 +1,1 @@
+Left_object
